@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @MEslmaniiii
+- 👋 Hi, I’m @Meslmaniiii
 - 👀 I’m interested in Data Analysis
 - 🌱 I’m currently learning by road map
 - 💞️ I’m looking to collaborate on my own feild
