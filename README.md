@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Meslmaniiii
-- 👀 I’m interested in Data Analysis
-- 🌱 I’m currently learning by road map
+- 👀 I’m interested in Business Intelligence and DE
+- 🌱 I’m currently Made a lot of peojects 
 - 💞️ I’m looking to collaborate on my own feild
 - 📫 How to reach me mohamedsaeeddm@gmail.com
 
