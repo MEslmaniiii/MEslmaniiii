@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Meslmaniiii
-- 👀 I’m Worked as Business Analyst
+- 👀 I’m Worked as Business Intelligence Developer 
 - 🌱 I’m currently Made a lot of Projects 
 - 💞️ I’m looking to collaborate on my own feild
 - 📫 How to reach me mohamedsaeeddm@gmail.com
